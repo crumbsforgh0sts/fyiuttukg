@@ -1,11 +1,16 @@
+$\color{yellow}{\text{🅐𝐮𝐭𝐮𝐦𝐧ㅤㅤㅤㅤo͟r͟ }}$ ㅤㅤ
+  ㅤㅤ $\color{Brown}{\text{🅖𝙞𝙜𝙞𝙪𝙪}}$
 
+$\color{brown}{\text{ㅤㅤܓㅤㅤ ㅤ 𓉳 ㅤ}}$ $\color{yellow}{\text{Any pronouns}}$ $\color{brown}{\text{ ⟨ he him pref ⟩ 𓇌}}$
 
+https://github.com/user-attachments/assets/4bc0b485-d625-4dd7-b8a8-a54d6f53a7ae
 
+$\color{Brown}{\text{always forsaken zone in safe spanish server}}$
 
-https://github.com/user-attachments/assets/837adf09-a9a0-4ec4-9b5c-2b8f89beec89
+ㅤㅤㅤㅤㅤㅤㅤ <img width="30" height="30" alt="2665146_7a86b" src="https://github.com/user-attachments/assets/971b5e1a-7e0f-4c2a-81fd-45ae3937a013" />
 
-<img width="49" height="48" alt="2665146_7a86b" src="https://github.com/user-attachments/assets/f1d62893-ff11-43b0-8a71-13536b3a4b43" /> $\color{brown}{\text{wip}}$  <img width="49" height="48" alt="2665146_7a86b" src="https://github.com/user-attachments/assets/86822488-f0b5-41d1-8121-da1b004c1c2e" />
-
+$\color{Beige}{\text{this shit sucks okay}}$
+$\color{yellow}{\text{Github made only for pony town 𓄻 𓇌}}$
 
 
 
